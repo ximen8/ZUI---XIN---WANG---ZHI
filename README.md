@@ -1,2 +1,1 @@
-www.ximen8.com
-最新网址
+<font size="5"><b>西门吧</b></font><div><font size="5"><b><br></b></font><div><div><font size="5"><b>www.ximen8.com</b></font></div><div><font size="5"><b><br></b></font><div><font size="4"><b>最新网址：</b></font></div><div><font size="4"><b><br></b></font></div><div><font size="4"><b>海外用户永久域名:www.ximen8.com www.ximen8.xyz</b></font></div><div><font size="4"><b><br></b></font></div><div><font size="4"><b>大陆用户访问地址:</b></font><b style="font-size: large;">www.ximen8.com www.ximen8.xyz</b></div><div><br></div></div></div></div>
